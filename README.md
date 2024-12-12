@@ -13,7 +13,7 @@
   - i don't really care about that, use whatever you want! \\^o^/
   - but i would appreciate it if you use she/her! ^^
 - i'm uhhh... just a regular person, really (°ー°〃)
-  - ...why do you look do disappointed?
+  - ...why do you look so disappointed?
 - contact me at **ContactMikayla@proton.me** or talk to me on my social media accounts (/≧▽≦)/
 
 # skills (⊙_⊙)？
